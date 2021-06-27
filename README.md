@@ -1,4 +1,4 @@
-## Hello World, I'm David 👋
+## Hello World, I'm David ☀️ 👋
 
 >It ain't how many times you get knocked down,
 >It's how many times you get back up.
