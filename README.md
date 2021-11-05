@@ -1,5 +1,5 @@
 ## Hello, Friend. I'm David ☀️ 👋
-![Holis](https://tenor.com/bbHFz.gif)
+![Holis](https://c.tenor.com/ftqs42Yna-oAAAAi/mochi-mochi-hello-white-mochi-mochi.gif)
 >It ain't how many times you get knocked down,
 >It's how many times you get back up.
 
